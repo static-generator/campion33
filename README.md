@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/e762ee31-5941-4f0a-ac1f-3b041e5866d6) 
-## ***Sophia*** ***San Pedro***
-# Happy Homes Highlands, Barangay Pacol, Naga City
+## ***Sophia Bianca T. San Pedro***
+Happy Homes Highlands, Barangay Pacol, Naga City
 >- Matthew 6:34
 ---
 My Interests:
