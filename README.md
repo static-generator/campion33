@@ -1,6 +1,7 @@
 # campion33
 ## ***Sophia*** ***San Pedro***
->- Happy Homes Highlands, Barangay Pacol, Naga City
+# Happy Homes Highlands, Barangay Pacol, Naga City
+>- Matthew 6:34
 ---
 My Interests:
 1. Arts
